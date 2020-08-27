@@ -1,0 +1,5 @@
+Method
+fry the tomato and the onions(make sure onion becomes golden brown). then Roast the kaju until golden. After that put all the fried items in a mixer and make a Paste. set the paste aside and then start preparing items for marination of paneer. in order to marinate the paneer first take 1 cup of curd and add kashmirilalmirch or any chilli powder,garlic powder,nutmeg,lime juice,dhania powder and the artificial food colouring mix them all and dip the paneer and marinate for minimum 6hours and After that fry  for 10 minutes and set aside. Now take the pan and add the butter in it and put the paste in it and add cream to it and make it boil after that add the fried paneer and let it soak in the gravy also add a little bit of chilly powder and at last the kesar.
+serve it with a chunk of butter in the top and a  little bit of dhania.
+
+enjoy!
